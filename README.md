@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @vk2k2
+- 💭 Amateur coder but big dreamer!
+- 👀 I’m interested in electronics, embedded systems, python and astronomy!
+- 🌱 I’m currently learning python for astronomy, and VLSI.
+- 💞️ I’m looking to collaborate on anything up my alley.
+- 📫 How to reach me: prithvivi3@gmail.com (or) vasuk788@gmail.com
+- 
